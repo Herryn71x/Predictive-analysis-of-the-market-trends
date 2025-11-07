@@ -1,0 +1,1 @@
+# Predictive-analysis-of-the-market-trends
